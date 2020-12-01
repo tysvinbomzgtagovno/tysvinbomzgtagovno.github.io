@@ -1,1 +1,1 @@
-# tysvinbomzgtagovno.github.io
+# ты свин бомж гта говно
